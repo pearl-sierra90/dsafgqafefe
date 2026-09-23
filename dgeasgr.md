@@ -1,0 +1,21 @@
+每年9月，是安卓旗舰扎堆发布的时间。vivo、OPPO、荣耀都会集中上新，市场上新机扎堆，用户选择太多，新品很容易被淹没。小米先拿出Pro系列，#你好 https://j3.rby0.biz 漂亮#
+#你好 https://8f.rby0.biz 漂亮#
+#你好 https://2h.rby0.biz 漂亮#
+#你好 https://6h.rby0.biz 漂亮#
+#你好 https://0e.rby0.biz 漂亮#
+#你好 https://c6f.rby0.biz 漂亮#
+#你好 https://2x.c6f.rby0.biz 漂亮#
+#你好 https://0k.c6f.rby0.biz 漂亮#
+#你好 https://4d.c6f.rby0.biz 漂亮#
+#你好 https://5d.c6f.rby0.biz 漂亮#
+#你好 https://5t.c6f.rby0.biz 漂亮#
+#你好 https://jg.c6f.rby0.biz 漂亮#
+#你好 https://9p.c6f.rby0.biz 漂亮#
+#你好 https://5m.c6f.rby0.biz 漂亮#
+#你好 https://a6.c6f.rby0.biz 漂亮#
+#你好 https://x7.c6f.rby0.biz 漂亮#
+#你好 https://m5.c6f.rby0.biz 漂亮#
+#你好 https://bj.c6f.rby0.biz 漂亮#
+#你好 https://h2.c6f.rby0.biz 漂亮#
+#你好 https://ju.c6f.rby0.biz 漂亮#
+在9月和其他品牌高端机型正面比拼；等到12月，旗舰潮基本结束，市场上新机变少，此时再发布小米18标准版，相当于单独开辟一个窗口期，避开激烈内卷，更容易吸引等待换机的用户。
